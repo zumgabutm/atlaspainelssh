@@ -1,0 +1,11 @@
+PAINEL ATLAS WEB
+
+GERENCIEMENTO DE CLIENT SSH 
+
+PAINEL WEB ATLAS VERÇAO TOTALMENTE OPEN
+
+BOM APROVEITO
+
+USEM E ABUZEM
+
+![image](https://github.com/user-attachments/assets/617d0ada-e11a-46e7-9dd7-446213b51cf2)
